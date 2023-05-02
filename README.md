@@ -1,2 +1,2 @@
 # CleanCodeCup
-I will do beautiful READ.me soon)
+I will do beautiful READ.me one day)
